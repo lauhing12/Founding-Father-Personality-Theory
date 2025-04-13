@@ -6,7 +6,6 @@ Chapter One：The Calling of the River — The Genesis of Washington and Mao
 
 
 第二章｜三魔四聖一金剛：中美領袖神譜世系與靈童傳承
-
 Chapter TwoThe Divine Lineage of Leadership and Its Reincarnated Spiritual Heirs
 
 第三章｜富蘭克林與周恩來：制度工程師的性格對照
